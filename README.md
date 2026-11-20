@@ -1,1 +1,0 @@
-# K5-L3B-Day11-NguyenDucManh-2A202603731-Guardrails-HITL-Responsible-AI
